@@ -1,3 +1,3 @@
-🌾🍞
+🌾 🍞
 
 Whole Grain > Whole Wheat
